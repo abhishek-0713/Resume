@@ -1,4 +1,4 @@
 ## `Abhishek Resume`
-### [abhishek-walke-resume.pdf](https://github.com/abhishek-0713/Resume/files/11003158/abhishek-walke-resume.pdf)
+### [abhishek-d-walke-resume.pdf](https://github.com/abhishek-0713/Resume/files/11737026/abhishek-d-walke-resume.pdf)
 
-![image](https://user-images.githubusercontent.com/105943862/225955464-61a5733c-bc57-4953-b49e-c59e4fb89db3.png)
+![abhishek-walke-resume](https://github.com/abhishek-0713/Resume/assets/105943862/7513023a-6aa6-4326-a683-34787478950f)
